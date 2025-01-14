@@ -1,4 +1,4 @@
-# Imagem: As Inteligências Artificiais desenhadas pelas próprias Interligências Artificiais
+# Imagem: As Inteligências Artificiais desenhadas pelas próprias Inteligências Artificiais
 
 ## 📒 Descrição
 Esta imagem criada por uma inteligência artificial demonstra como esta IA em espefícifico prefere ser retratada visualmente
